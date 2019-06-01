@@ -1,5 +1,5 @@
 # Chatapp
 Hi andela
-this is micheal, am a native of yoruba i love any developing am delighted to join this great fellowship
+this is micheal, a younger developer but stiill try to acquire more knowledge about programming
 
-i love you guys work and the knowledge you're impacting in the life of young developer
+contact me for more details about me
